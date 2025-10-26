@@ -1,0 +1,1 @@
+# Indus-Script-and-Voynich-Manuscript-Decipherment-Harmonic-Symbolic-Encoding-via-K-Math-
